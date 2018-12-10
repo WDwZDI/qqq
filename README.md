@@ -12,3 +12,19 @@ sgsg
 ala ma kota!!!
 i ola ma kota!!!
 a teraz ela
+fsfs
+fsdfsdfs
+fdsfsdfds
+
+
+sdf
+sd
+fsdfsfsdf
+sdfsdf
+
+
+sdfsfsf
+
+sdfsfs
+
+sdfsdfs
