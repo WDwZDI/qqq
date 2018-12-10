@@ -10,4 +10,5 @@ ssgsgsg
 g
 sgsg
 ala ma kota!!!
-
+i ola ma kota!!!
+a teraz ela
